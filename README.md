@@ -1,0 +1,1 @@
+# haratoblog.github.io
